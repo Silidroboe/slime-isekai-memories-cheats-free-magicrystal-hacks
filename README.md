@@ -1,2 +1,5 @@
-# slime-isekai-memories-cheats-free-magicrystal-hacks
-Slime Isekai Memories Cheat codes unlimited free magicrystals Hacks global version
+# Slime Isekai Memories Cheat codes unlimited free magicrystals Hacks global version
+
+Slime Isekai Memories Cheat codes unlimited free magicrystals Hacks global version - Warrior is usually the most basic in the profession. For most traditional RPGs, the protagonist is almost always warrior or any variant of it. Warrior is the most solid class among the dream elves. It has the highest HP and def attributes of all classes. It performs well in close combat and is completely suitable for the role of tank or front line in any specific battle. Warriors can be upgraded to paladins or Berserkers. Paladins are more built for defense and can use skills to further improve survivability, while Berserkers turn more to increase offensive power. If you like to lead attacks on enemies and invite more enemies to unite to protect your allies, then soldiers are your best career. You can expect that half of the players on either side want to be top damage makers, and they will choose mages. Mages can deal huge damage to individual targets and enemy groups, or they can cause state effects on them from a distance. Mages are elemental masters and may cause additional damage to enemies who show unfavorable elements. Slime Isekai Memories mod can grow into wizards or Necromancers.
+
+<a href="https://watermod.icu/slime-isekai-memories/">go here</a>
